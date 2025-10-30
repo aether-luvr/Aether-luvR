@@ -3,7 +3,7 @@
                                                      
                                                           " THE RAIN!! "           
 
-🫧 . : Current Status : Angry , kinda calm but stressed ..  I hate ts bro. I had to do TS again. After 2 HOURS . OMFG.. I HATE YOU GITHUB .
+🫧 . : Current Status : I feel kinda better naw . pwease int, i wanna makew neuw fwiends!!!
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
