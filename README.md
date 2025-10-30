@@ -24,7 +24,7 @@
                                                  
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-🫧 - Pwease check my pronouns pages before talking!!! I got two of time you can find it via my profile!
+🫧 - Pwease check my pronouns pages before talking!!! I got two of it you can find it via my profile!
 
 🫧 - I hate ppl covering my pony. You cant cover me unless youre Niki , Cecil , Kujou , Roque , Maya , Pie , Xander and Jaylin. (Mostly close friends)
 
