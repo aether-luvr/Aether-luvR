@@ -3,7 +3,7 @@
                                                      
                                                           " THE RAIN!! "           
 
-🫧 . : Current Status : I feel kinda better naw . pwease int, i wanna makew neuw fwiends!!!
+🫧 . : Current Status : I feel WORSE . (Lost my undone strawpage that i work really hard like 4 hours.) So angry , sad and fucking feeling bad
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
